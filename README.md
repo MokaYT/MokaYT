@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Moka Malas
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning C++
+- 📫 How to reach me itzrador999@gmail.com | or my discord moka.17 | or my instagram moka_yt_
